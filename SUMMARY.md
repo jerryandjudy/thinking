@@ -2,5 +2,6 @@
 
 * [简介](README.md)
 * [文章](article/README.md)
+   * 如何在管理上和90后愉快地玩耍?
 * [书籍](book/README.md)
 
