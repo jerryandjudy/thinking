@@ -303,6 +303,8 @@
 
 [![](http://img11.360buyimg.com/n11/g9/M03/05/06/rBEHalBF1G0IAAAAAACv0ArFiIcAABBAAJN_A4AAK_o393.jpg)](http://click.union.jd.com/JdClick/?unionId=5482&t=4&to=http://www.jd.com/product/11065889.html/)
 
+《积极思考的力量》以充满激情的语言深刻揭示了人类理性的内在力量——积极思考可以创造人心未曾想到的美好奇迹，负面思想则常常吸引失败的来临，同时详细阐述了自我激励的原则和技巧。
+
 
 
 
