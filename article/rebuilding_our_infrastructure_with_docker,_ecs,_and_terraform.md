@@ -2,6 +2,8 @@
 
 [查看原文](https://segment.com/blog/rebuilding-our-infrastructure/)
 
+---
+
 In Segment’s early days, our infrastructure was pretty hacked together. We provisioned instances through the AWS UI, had a graveyard of unused AMIs, and configuration was implemented three different ways.
 
 As the business started taking off, we grew the size of the eng team and the complexity of our architecture. But working with production was still limited to a handful of folks who knew the arcane gotchas. We’d been improving the process incrementally, but we needed to give our infrastructure a deeper overhaul to keep moving quickly.
