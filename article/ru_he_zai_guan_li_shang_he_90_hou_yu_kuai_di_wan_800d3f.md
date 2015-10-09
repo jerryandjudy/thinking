@@ -61,7 +61,7 @@
 
 **4. 90后只爱跟优秀的人一起工作**
 
-<span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;color:#3f3f3f;"><span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;">在整个90后的团队管理工作中，我观察到90后的孩子确实是相对“自我”的，他们有自己的个性，喜好，喜欢被认同，同样也不排斥成为争议的中心，喜欢直接对话坦荡交流，喜恶都容易写在脸上。特别是90后的竞争意识比较强的，在职场上他们会有自己心中对人的能力评级，每个人心中对共事的人会有自己的一杆秤，最重要的是，</span><span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;color:#c00000;">**<span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;">90后只喜欢和优秀的人在一起共事。</span>**</span></span>
+在整个90后的团队管理工作中，我观察到90后的孩子确实是相对“自我”的，他们有自己的个性，喜好，喜欢被认同，同样也不排斥成为争议的中心，喜欢直接对话坦荡交流，喜恶都容易写在脸上。特别是90后的竞争意识比较强的，在职场上他们会有自己心中对人的能力评级，每个人心中对共事的人会有自己的一杆秤，最重要的是，**90后只喜欢和优秀的人在一起共事。**
 
 <span style="max-width:100%;color:#3f3f3f;box-sizing:border-box !important;word-wrap:break-word !important;">在70、80的思维里，通常会下意识地尊重上级，也会觉得上级就比我们能力强很多。但是在90后的思维里，没有这些外在级别的束缚，在他们看来，你的职位你的光环都只是一时的光环，他们真正看重的是你在工作中的实力。时常听到很多主管说90后难管理，其实可能是90后心里并不认可主管的能力，也就会不容易服从上级了，而这时候如果主管拿出“职位”这套东西来强势管理的话，90后只会更加排斥。</span>
 
