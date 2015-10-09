@@ -45,25 +45,21 @@
 
 ![](http://ww1.sinaimg.cn/large/62d2dd56jw1ew6a2rnyrsj20hs0hsmzw.jpg)
 
-<span style="max-width:100%;color:#ffc000;box-sizing:border-box !important;word-wrap:break-word !important;">●</span> <span style="max-width:100%;color:#7f7f7f;box-sizing:border-box !important;word-wrap:break-word !important;">行动君们一起庆祝每一次收获 <span style="max-width:100%;color:#c00000;">●</span></span>
+目前为止行动派的各个小组基本上我都是指一个方向，给予一点建议后我就不再参与具体事务了，都由各个小组长自行管理，**充分实践“授权”并践行“不干涉原则”，我最大的发现就是当你给予团队充分的决定空间时，他们会超出你的想象。**无论是校园组、社群组、线下伙伴圈组还是论坛组，都由90后们自己打理得井井有条，现在常常有人问我为什么可以创业和旅行兼顾？为什么可以不在公司但团队管理仍然很好？其实都是因为一步步实践授权并真正落实授权这件事。
 
-<span style="max-width:100%;color:#3f3f3f;box-sizing:border-box !important;word-wrap:break-word !important;">目前为止行动派的各个小组基本上我都是指一个方向，给予一点建议后我就不再参与具体事务了，都由各个小组长自行管理，**<span style="max-width:100%;color:#c00000;box-sizing:border-box !important;word-wrap:break-word !important;">充分实践“授权”并践行“不干涉原则”，我最大的发现就是当你给予团队充分的决定空间时，他们会超出你的想象。</span>**无论是校园组、社群组、线下伙伴圈组还是论坛组，都由90后们自己打理得井井有条，现在常常有人问我为什么可以创业和旅行兼顾？为什么可以不在公司但团队管理仍然很好？其实都是因为一步步实践授权并真正落实授权这件事。</span>
+**不充分授权，你很难让团队真正成长**
 
-<span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;color:#c00000;">**<span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;">不充分授权，你很难让团队真正成长起来。</span>**</span>
+**3. 允许员工犯错**
 
-**▌**<span style="color:#595959;">**3\. 允许员工犯错**</span>
-
-<span style="max-width:100%;color:#595959;box-sizing:border-box !important;word-wrap:break-word !important;">在大多数的时候，员工犯错误都会是老板最心痛的时候，但这就是必须要有的心态。我一直觉得作为创始人，或是作为领导，最重要的是能够在关键时候扛责任。比如，为团队的错误买单。</span>
+在大多数的时候，员工犯错误都会是老板最心痛的时候，但这就是必须要有的心态。我一直觉得作为创始人，或是作为领导，最重要的是能够在关键时候扛责任。比如，为团队的错误买单。
 
 ![](http://ww3.sinaimg.cn/large/62d2dd56jw1ew6a32g8vfj20hs0bzac4.jpg)
 
-<span style="max-width:100%;color:#ffc000;box-sizing:border-box !important;word-wrap:break-word !important;">●</span> <span style="max-width:100%;color:#7f7f7f;box-sizing:border-box !important;word-wrap:break-word !important;">颜值超高的逗b行动君们 <span style="max-width:100%;color:#c00000;">●</span></span>
+我们自己的成长之路都是磕磕碰碰的，更何况团队成员了，只有给予充分试错的机会，才会得到不断迭代的发展。很多时候越是担心员工犯错越要事无巨细过问，越要干涉管理，通常最累的还是创始人自己。当然，那种为别人错误买单的滋味确实不好受，但这总是自己需要接受的教训，也是团队成长的好时机。换个心态来看，其实就能够接受了。
 
-<span style="max-width:100%;color:#3f3f3f;box-sizing:border-box !important;word-wrap:break-word !important;">我们自己的成长之路都是磕磕碰碰的，更何况团队成员了，只有给予充分试错的机会，才会得到不断迭代的发展。很多时候越是担心员工犯错越要事无巨细过问，越要干涉管理，通常最累的还是创始人自己。当然，那种为别人错误买单的滋味确实不好受，但这总是自己需要接受的教训，也是团队成长的好时机。换个心态来看，其实就能够接受了。</span>
+允许团队犯错误，团队才会有胆子迈出你想象不到的步伐。
 
-<span style="max-width:100%;color:#3f3f3f;box-sizing:border-box !important;word-wrap:break-word !important;">允许团队犯错误，团队才会有胆子迈出你想象不到的步伐。</span>
-
-**▌**<span style="color:#595959;">**4\. 90后只爱跟优秀****的人一起工作**</span>
+**4. 90后只爱跟优秀的人一起工作**
 
 <span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;color:#3f3f3f;"><span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;">在整个90后的团队管理工作中，我观察到90后的孩子确实是相对“自我”的，他们有自己的个性，喜好，喜欢被认同，同样也不排斥成为争议的中心，喜欢直接对话坦荡交流，喜恶都容易写在脸上。特别是90后的竞争意识比较强的，在职场上他们会有自己心中对人的能力评级，每个人心中对共事的人会有自己的一杆秤，最重要的是，</span><span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;color:#c00000;">**<span style="max-width:100%;box-sizing:border-box !important;word-wrap:break-word !important;">90后只喜欢和优秀的人在一起共事。</span>**</span></span>
 
