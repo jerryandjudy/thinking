@@ -3,6 +3,6 @@
 * [简介](README.md)
 * [文章](article/README.md)
    * [如何在管理上和90后愉快地玩耍?](article/ru_he_zai_guan_li_shang_he_90_hou_yu_kuai_di_wan_800d3f.md)
-   * Rebuilding Our Infrastructure with Docker, ECS, and Terraform
+   * [Rebuilding Our Infrastructure with Docker, ECS, and Terraform](article/rebuilding_our_infrastructure_with_docker,_ecs,_and_terraform.md)
 * [书籍](book/README.md)
 
