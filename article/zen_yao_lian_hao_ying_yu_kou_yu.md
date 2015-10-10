@@ -143,9 +143,6 @@
 **【语音的训练】**  
 通过一段时间的跟读模仿，你的语音应该也有一定程度上的改变了。  
 如果需要更加优化，可以用American Accent Training，效果相当显著。  
-
-<noscript><img src="https://pic2.zhimg.com/66d11ae9a8dcfbb2ab225cd4e3427579_b.jpg" data-rawwidth="309" data-rawheight="432" class="content_image" width="309"></noscript>
-
 ![](https://pic2.zhimg.com/66d11ae9a8dcfbb2ab225cd4e3427579_b.jpg)  
 
 下载地址：  
