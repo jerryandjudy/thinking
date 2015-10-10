@@ -165,99 +165,16 @@
 ——————  
 **下面是我自己配音的一个小视频。**  
 _（你可以听出并不是native speaker， 但并不妨碍理解。相反，正因为有一些口音所以才会有exotic的特色感觉。所以当时这个视频出来以后还有一些native speaker找过我去配音。）_  
-[![](http://vpic.video.qq.com/96391270/y0156n35ilv_160_90_3.jpg)
 
-<div class="content">
-
-<div class="title">配音1<span class="z-ico-extern-gray"></span><span class="z-ico-extern-blue"></span></div>
-
-<div class="url"><span class="z-ico-video"></span>http://v.qq.com/page/y/l/v/y0156n35ilv.html</div>
-
-</div>
-
-](http://v.qq.com/page/y/l/v/y0156n35ilv.html)  
 香奈儿的整个系列宣传视频都找了这个有着法国口音的配音。反而有种独特的风格在里面。  
-[![](http://g3.ykimg.com/0100401F4650724C5E187400001C615560568A-4F9B-F1BB-7730-D75C80413B1A)
-
-<div class="content">
-
-<div class="title">香奈儿Inside CHANEL第一章：《N°5》—在线播放—优酷网，视频高清在线观看<span class="z-ico-extern-gray"></span><span class="z-ico-extern-blue"></span></div>
-
-<div class="url"><span class="z-ico-video"></span>http://v.youku.com/v_show/id_XNDU5MDY4MzQ4.html?from=s1.8-1-1.2</div>
-
-</div>
-
-](http://v.youku.com/v_show/id_XNDU5MDY4MzQ4.html?from=s1.8-1-1.2)  
+[![](http://g3.ykimg.com/0100401F4650724C5E187400001C615560568A-4F9B-F1BB-7730-D75C80413B1A)](http://v.youku.com/v_show/id_XNDU5MDY4MzQ4.html?from=s1.8-1-1.2)  
 最后，很多人都会下载一堆乱七八糟的材料，买那种厚厚的口语800句大全什么的却从来都不看，下载了很多口语app也不用。  
 不要欺骗自己了，先把词背好，然后踏踏实实去练习跟读，然后再背。  
 
 最后的最后，最好的方式就是和歪果仁多交流。  
 
 最后的最后的最后，时间表很重要，坚持更重要。  
-这个方法可以帮助你提高训练口语的效率并且降低一定痛苦，但是它并不能帮你加什么特效。  
-
-————————————  
-[进化论 - 知乎专栏](http://zhuanlan.zhihu.com/hibetterme)  
-情商、智商、职业、外貌，生活的全面提升。   
-多来进化论，你整个人都变好了。   
-【我们是】 两个女博士， 一个非主流前微软设计师， 还有一个辞了麦肯锡的创业狗。   
-【我们产】 80%干货+20%鸡精  
-
-微信公众号：hibetterme</div>
-
-</div>
-
-<a class="zg-anchor-hidden ac" name="15606176-comment"></a>
-
-<div class="zm-item-meta zm-item-comment-el answer-actions clearfix">
-
-<div class="zm-meta-panel"><span class="answer-date-link-wrap">[编辑于 2015-06-17](/question/20097263/answer/50515166)</span> [338 条评论](#) [感谢](#)[
-
-<div class="goog-inline-block goog-menu-button-outer-box">
-
-<div class="goog-inline-block goog-menu-button-inner-box">
-
-<div class="goog-inline-block goog-menu-button-caption">分享</div>
-
-</div>
-
-</div>
-
-](#)[收藏](#) <span class="zg-bull zu-autohide">•</span> [没有帮助](#) <span class="zg-bull zu-autohide">•</span>[
-
-<div class="goog-inline-block goog-menu-button-outer-box">
-
-<div class="goog-inline-block goog-menu-button-inner-box">
-
-<div class="goog-inline-block goog-menu-button-caption">举报</div>
-
-</div>
-
-</div>
-
-](#)<span class="zg-bull">•</span> [禁止转载](/terms#sec-licence-6)</div>
-
-</div>
-
-</div>
-
-<div tabindex="-1" class="zm-item-answer" itemscope="" itemtype="http://schema.org/Answer" data-aid="20226267" data-atoken="62032828" data-collapsed="0" data-created="1441215065" data-deleted="0" data-helpful="1" data-isowner="0" data-copyable="0"><a class="zg-anchor-hidden" name="answer-20226267"></a>
-
-<div class="zm-votebar goog-scrollfloater"><button class="up" aria-pressed="false" title="赞同"><span class="label">赞同</span> <span class="count">3341</span></button> <button class="down" aria-pressed="false" title="反对，不会显示你的姓名"><span class="label">反对，不会显示你的姓名</span></button></div>
-
-<div class="answer-head">
-
-<div class="zm-item-answer-author-info">
-
-### [![](https://pic2.zhimg.com/e2aef7f4a5b50f2fffb06f354130323d_s.jpg)](/people/ni-ke-liu-liu)[尼克六六](/people/ni-ke-liu-liu)
-
-[收起](javascript:;)</div>
-
-<div class="zm-item-vote-info " data-votecount="3341"><span class="voters"><span class="user-block">[浅浅月er](http://www.zhihu.com/people/qian-qian-yue-er "浅浅月er")、</span><span class="user-block">[knows who](http://www.zhihu.com/people/myownworld "knows who")、</span><span class="user-block">[waterfall](http://www.zhihu.com/people/waterfall-17 "waterfall")</span></span> [等人赞同](javascript:;)</div>
-
-</div>
-
-
+这个方法可以帮助你提高训练口语的效率并且降低一定痛苦，但是它并不能帮你加什么特效。
 
 在知乎上答了好几个关于学习英语的问题后，有很多朋友私信问我口语怎么提高。因为最近忙成狗，没有回复请见谅。这边我借这个题目说一下口语的学习方法，并围绕口语做一个比较全面的总结吧。  
 
