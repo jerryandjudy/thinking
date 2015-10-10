@@ -77,8 +77,6 @@
 
 **（评论补充** [木木](http://www.zhihu.com/people/mu-mu-56-44)： 推荐一下qq影音，可以自己决定在任何时间任何位置加马赛克，不用纸挡着这么不容易……之前上英语综合训练课的时候，老师推荐使用的！**）**  
 
-<noscript><img src="https://pic1.zhimg.com/bed60c1ea1f4af92536af63494b90a04_b.jpg" data-rawwidth="1280" data-rawheight="960" class="origin_image zh-lightbox-thumb" width="1280" data-original="https://pic1.zhimg.com/bed60c1ea1f4af92536af63494b90a04_r.jpg"></noscript>
-
 ![](https://pic1.zhimg.com/bed60c1ea1f4af92536af63494b90a04_b.jpg)  
 看得过程中遇到你连英文都看不懂的，找个本子，把那句话记录下来。  
 当时不要看中文，一集完全看完以后把纸条撤掉，反查你记录下来看不懂的英文是什么意思。  
